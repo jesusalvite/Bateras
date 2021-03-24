@@ -1,0 +1,1 @@
+Vamos a realizar una serie de libros que nos ayuden a aprender a tocar la bateria acustica

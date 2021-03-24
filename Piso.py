@@ -5,3 +5,4 @@ Primeros golpes. Aprenderemos a tocar piano, medio y forte
 El rebote de la baqueta que vuelve siempre al mismo lugar.
 
 si tocas en un apartamento te recomiendo la bateria electronica
+En esta es importante que te acuerdes de enchufarla al principio
